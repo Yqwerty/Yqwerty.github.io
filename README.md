@@ -2,6 +2,6 @@
 !!!~~~
 Good good study,day day up!!!
 
-![page1](https://github.com/Yqwerty/Yqwerty.github.io/blob/master/page1.png)
+![page1](https://s2.ax1x.com/2019/10/23/Kt9LdK.png)
 
 
